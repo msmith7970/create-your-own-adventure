@@ -1229,3 +1229,5 @@ I have atlast found a way to heaven...Want to go [there](00_PortBlair's Emerald 
 Why are you reading this line? smile and move on.
 
 Smile and move on gingerly.
+
+Pan for some gold and solve all your problems and mine too if you find enough!
